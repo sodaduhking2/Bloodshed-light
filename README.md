@@ -1,7 +1,5 @@
 # Bloodshed-light
-this is the less op version of my gtag menu if you want the op version buy it sacrifice your money do some witch craft to put it in my wallet
+2025 EDIT: this is a dead project like many of the projects on my github i will still take money though as you could probably guess crack still doesnt buy itself
 ## GIMMIE MONEY
 
 the discord where you can give me enough money crack doesnt buy itself https://discord.gg/dZsn8wkfx2
-
-#### THE DRUG THING WAS A JOKE NOW DAYS I HAVE TO SAY IF IT IS A JOKE OR NOT
